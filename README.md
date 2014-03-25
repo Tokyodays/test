@@ -1,4 +1,3 @@
-
 http://matome.naver.jp/odai/2134034328994689901
 こっちで探そうかなと。
 
@@ -7,6 +6,8 @@ http://matome.naver.jp/odai/2134034328994689901
 
 
 国際交流パーティー
+行ったのはこれ。
+http://www.international-party.jp/ja/
 
 Chie,
 Just curious if you have any time or place in mind.
